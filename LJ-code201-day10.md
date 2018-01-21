@@ -1,0 +1,1 @@
+worked with Richard on Paired programming; really like pair programming and working in groups in general.  he helped explain a couple things that actually sunk in finally.  but still feel lost, hahaha,  dont think thats going away anytime soon.  
